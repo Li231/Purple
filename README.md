@@ -1,3 +1,3 @@
 # Purple
 Hi =) 
-H... You are beauiful 💜
+You are beauiful 💜
